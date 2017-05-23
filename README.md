@@ -9,4 +9,4 @@ Contents:
 - [ ] Results
 - [ ] Conclusion
 
-Thanks for visiting! :fireworks:
+Thanks for visiting! :dancer:
